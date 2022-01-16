@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @abortedalien
+- 👀 I’m interested in linux
+- 🌱 I’m currently learning i3
+- 💞️ I’m looking to collaborate on discord
+- 📫 How to reach me AbortedAlien#1044
